@@ -1,1 +1,0 @@
-TOÁN LOGIC
